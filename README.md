@@ -1,1 +1,0 @@
-# Relationship-between-GDP-and-EnergyConsumption
